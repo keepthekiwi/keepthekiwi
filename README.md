@@ -1,4 +1,6 @@
 ### Hi there 👋
 
-I'm a student a 42Heilbronn.
-My Github page and code is a mess but I'm constantly improving and try to make both better step by step.
+I'm a student at 42Heilbronn and love to learn new stuff.
+
+My Github page and code is a mess bcs I started as a total noob in programming.
+But I'm constantly improving and trying to make both better step by step.
