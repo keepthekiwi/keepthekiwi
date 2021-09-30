@@ -10,3 +10,8 @@ But I'm constantly improving and trying to make both better step by step.
 Motivational song:
 You Can Get It If You Really Want
 https://www.youtube.com/watch?v=PLFmbE6Maa8
+
+
+Teamspirit song:
+Everything Is AWESOME!!! The LEGO® Movie
+https://www.youtube.com/watch?v=StTqXEQ2l-Y
